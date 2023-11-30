@@ -1,1 +1,0 @@
-# mini-project_helmy-firdyastro
